@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @FL14
-- 👀 I’m interested in chia
-- 🌱 I’m currently learning chia farming
+- 👀 I’m interested in crypto 
+- 🌱 I’m currently learning
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
